@@ -10,3 +10,4 @@ He can speak in many language, including mandarin, english and japanese
 He always be cruel to himself but be kind to others
 He cook very well 
 He watches anime while eating
+He loves to watch movie
